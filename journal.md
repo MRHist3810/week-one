@@ -7,3 +7,7 @@ Today (May 9th) I decided to tackle the readings and the audio components. Of co
 One thing in particular I'm going to note here--in hopes that I can hold myself accountable--is to make better use of the Discord in this regard. We're at the end of the week and I've not really utilized it. Seeing now the emphasis on communal productivity, I hope I can push myself to step beyond my own comfort zone and get engaged.
 
 Discussions brought up in the podcasts and readings about privilege are interesting to me. It's something that I evidently have, but that I was never really taught to consider or analyse growing up, or in school. I've found developing an understanding of this at university quite interesting, so I always appreciate coming across course material that brings it to the forefront.
+
+If I had to sum up Week one in a single word, it would be 'intimidating.' This is uncharted waters for me. I took this course because I met with you (Dr. Graham) just once for a meeting last year, and looked into your work and classes as a result. Your approach to this field of history drew me in, so I decided to give it a go.
+
+Starting Week One was hard for me, I kept putting it off because of how foreign it all felt. However, I am slowly settling into this, know some things to tackle differently for next week, and I am excited to see where it all leads. I have been trying to push out of my historical comfort zones, so I hope to come away from all of this feeling somewhat accomplished in my efforts, and that my horizons have been expanded.
