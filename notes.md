@@ -21,3 +21,7 @@
   * Again, perhaps something to ask for help for/clarification on in Week Two?
   
 * No spell check in Github is the bane of my existence!
+
+* Spelled this document wrong when I created it, good to know it can be edited.
+
+* Similarly, I made my own username incorrectly. Again, also good to know it can be edited. Live and learn.
