@@ -8,7 +8,7 @@ One thing in particular I'm going to note here--in hopes that I can hold myself 
 
 Discussions brought up in the podcasts and readings about privilege are interesting to me. It's something that I evidently have, but that I was never really taught to consider or analyse growing up, or in school. I've found developing an understanding of this at university quite interesting, so I always appreciate coming across course material that brings it to the forefront.
 
-(I left my journal here and decided to take a gamble and test Github's functionality. I wasn't done writing, but I wanted to see if I could stop and start writing when I felt like it, so I 'commited changes' and left it for the night. Today (May 10th) I've picked up where I left off and found that you can edit your work here just like any other Word or Google doc. Good to know)
+(I left my journal here and decided to take a gamble and test Github's functionality. I wasn't done writing, but I wanted to see if I could stop and start writing when I felt like it, so I 'commited changes' and left it for the night. Today (May 10th) I've picked up where I left off and found that you can edit your work here just like any other Word or Google doc. Good to know.)
 
 If I had to sum up Week one in a single word, it would be 'intimidating.' This is uncharted waters for me. I took this course because I met with you (Dr. Graham) just once for a meeting last year, and looked into your work and classes as a result. Your approach to this field of history drew me in, so I decided to give it a go.
 
